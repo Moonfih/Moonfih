@@ -2,4 +2,4 @@
 - 👀 I’m interested in nothing but code
 - 🌱 I’m currently learning c
 - 💞️ I’m looking to collaborate on anything i can do
-- 📫 instagram: @victor_hug segue o pai
+- 📫 instagram: @victor._hug segue que ganha um pix
